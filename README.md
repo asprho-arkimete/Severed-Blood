@@ -1,0 +1,1 @@
+video Gamer stile horror dark  Ispirato a Hostel: scopo del gioco riempire l'ampolla di sangue , prelevando il sangue dalle vittime, carica 4 personaggi (consigliati femminili per via del prompt generation delle images), e raccogli il loro sangue generando immagini stile slatter, oggetti a disposizioni , (sega a ferro, martello, cacciavite)  
